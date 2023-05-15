@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Vrukshav
 - 👀 I’m interested in Coding, Piano, Chess, Studies, Drawings 
-- 🌱 I’m currently learning 7th Grade 
+- 🌱 I’m currently learning 8th Grade 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ... You can reach me , by sending an email to vvrukshav@gmail.com
 
